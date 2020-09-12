@@ -1,1 +1,1 @@
-Read the instructions
+Instructions
